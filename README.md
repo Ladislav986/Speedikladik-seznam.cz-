@@ -1,0 +1,1 @@
+# Speedikladik-seznam.cz-
